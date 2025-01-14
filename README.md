@@ -1,3 +1,3 @@
-# HARDWORKERS
-It's all about learning , I am a lover of coding
-![Uploading Code Hacking GIF by Pizza Ninjas.gif…]()
+![Code Hacking GIF by Pizza Ninjas](https://github.com/user-attachments/assets/0fa09be3-d66c-4089-b263-3854c1e9b6eb)
+
+
