@@ -1,3 +1,4 @@
+![jeremy-nixon-catref](https://github.com/user-attachments/assets/826a669d-e18f-42fc-8705-3be263e04480)
 
 
 # 🌸 About Me:
